@@ -1,1 +1,0 @@
-# APSCHE-Internship-project
